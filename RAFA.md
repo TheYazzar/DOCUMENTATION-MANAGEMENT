@@ -1,5 +1,2 @@
-Manajemen dokumentasi
-hal ini digunakan untuk melakukan dokumentasi
-
-## Author
-@TheYazzar
+Kalau menurut pendapatku semua orang memang diharuskan mencoba ini. kalau memang benar kenapa ?
+andai cintai setangkai bungaasdasdasdasdasd
